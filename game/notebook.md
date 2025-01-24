@@ -16,3 +16,8 @@
 Location of the crime is still unknown - the room must have been empty when it happened...
 
 - La primer pista que encontre decia que tabernero notó que la puerta del estudio estaba un poquito abierta. Este parece ser un buen punto para comenzar la investigación.
+
+- Me costo un poco encontrar el estudio y creo que es el de la mansion. La pista que econtre me manda a las clases en la escuela, a ver que encuentro.
+
+- Al llegar a las clases me al townhall a ver que me espera por ahi....
+
