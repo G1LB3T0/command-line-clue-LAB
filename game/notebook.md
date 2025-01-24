@@ -21,3 +21,9 @@ Location of the crime is still unknown - the room must have been empty when it h
 
 - Al llegar a las clases me manda para el townhall a ver que me espera por ahi....
 
+- La siguiente pista que encontre en las meeting rooms me indica que toda la evidencia apunta a las casas me imagino que ahi fue el asesinato
+
+
+- Encontre que en efecto en las houses fue el asesinato pero no me hace coherencia porque como tal no es ninguna habitacion pero toco sacar conclusiones y revisar todos los person.txt y objects.txt
+
+-
