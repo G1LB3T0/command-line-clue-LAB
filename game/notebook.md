@@ -19,5 +19,5 @@ Location of the crime is still unknown - the room must have been empty when it h
 
 - Me costo un poco encontrar el estudio y creo que es el de la mansion. La pista que econtre me manda a las clases en la escuela, a ver que encuentro.
 
-- Al llegar a las clases me al townhall a ver que me espera por ahi....
+- Al llegar a las clases me manda para el townhall a ver que me espera por ahi....
 
